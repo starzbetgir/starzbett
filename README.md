@@ -1,12 +1,5 @@
-<meta charset="UTF-8">
-    <meta name="viewport" content="width=device-width, initial-scale=1.0">
-</head>
-<body>
-    <a href="https://xn--guncelgrs-1pbb.com/kwwsv://zzz960mrmrehw.frp" target="_blank">
-        <img src="https://i.hizliresim.com/dgnwq2o.jpg" alt="Resim" alt="Açıklama">
-    </a>
-</body>
-</html>
+<h1><b><a href="https://casibom715.com.tr">STARZBET'A GİRİŞ YAPMAK İÇİN BURAYA TIKLAYIN</a></b></h1>
+ <h1><b><a href="https://casibom715.com.tr">STARZBET'A GİRİŞ YAPMAK İÇİN BURAYA TIKLAYIN</a></b></h1>
 
 <p><i>STARZBET</i> - canlı bahis, spor bahisleri ve casino oyunları alanında lider bir platformdur. 2024 itibarıyla kullanıcılarına güvenli ve kesintisiz bir oyun deneyimi sunmaya devam etmektedir. <i>STARZBET</i> platformu, çeşitli ödeme yöntemleri sunarak, finansal işlemlerinizi hızlı ve güvenli bir şekilde yapmanıza olanak tanır. <i>STARZBET</i>, spor bahisleri, canlı bahis, casino ve poker hizmetlerinde güvenilir bir deneyim sunar. Hemen giriş yaparak oyun oynamaya başlayabilirsiniz.</p>
 
