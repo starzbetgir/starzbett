@@ -1,3 +1,14 @@
+<meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+</head>
+<body>
+    <a href="https://m-starzbet219.com/" target="_blank">
+        <img src="https://framerusercontent.com/images/ZFYwQF35RctotsFSKSe7XUEo.png" alt="Resim" alt="Açıklama">
+    </a>
+</body>
+</html>
+
+
 <h1><b><a href="https://m-starzbet219.com">STARZBET'A GİRİŞ YAPMAK İÇİN BURAYA TIKLAYIN</a></b></h1>
  <h1><b><a href="https://m-starzbet219.com">STARZBET'A GİRİŞ YAPMAK İÇİN BURAYA TIKLAYIN</a></b></h1>
 
